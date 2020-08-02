@@ -1,1 +1,1 @@
-# er.com
+aquí se publicara lo estrictamente necesario
